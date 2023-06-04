@@ -1,8 +1,7 @@
 Anna Savrova
 ============
 
-<img src="https://github.com/kverbell/something/assets/123375097/b27f7cd6-82e4-4ce5-bdfc-f7f18c3a9b27" width="200">
-
+<img src="https://github.com/kverbell/something/assets/123375097/19a0cb48-b737-42d0-85c5-575b6983842f" width="200">
 
 __Email [annsavrova@gmail.com](annsavrova@gmail.com)__                       
 
